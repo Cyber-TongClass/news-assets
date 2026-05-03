@@ -1,0 +1,4 @@
+[submodule "news images"]
+	path = news images
+	url = https://github.com/gky0329/tong-image-repo
+	branch = main
