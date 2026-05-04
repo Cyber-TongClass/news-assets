@@ -5,7 +5,7 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/OmYJXJYoyphrN-Zhc8oORQ](https://mp.weixin.qq.com/s/OmYJXJYoyphrN-Zhc8oORQ)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-1.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/001.gif)
 
   
 
@@ -17,7 +17,7 @@
 
 **以赛会友，羽动春分**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/002.png)
 
 **盼望着，盼望着，**
 
@@ -43,7 +43,7 @@
 
 活动当天，比赛在五四羽毛球场1-5号场地同步展开，其中1号场作为热身与自由训练区域，其余场地轮流上演精彩对决。赛事组织、裁判安排与后勤保障同步推进，力求为参赛师生提供安全、有序、轻松愉快的比赛体验。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-3.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/003.jpeg)
 
 全体赛前合影留念
 
@@ -59,7 +59,7 @@
 
 **赛场直击，身心合一**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/004.png)
 
   
 
@@ -75,11 +75,11 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-5.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/005.png)
 
   领队赛前聆听规则介绍
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-6.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/006.png)
 
 李文新老师开球
 
@@ -109,13 +109,13 @@
 
 在默契配合中化解一次次凌厉扣杀。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-7.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/007.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-8.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/008.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-9.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/009.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-10.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/010.png)
 
 比赛精彩瞬间
 
@@ -135,17 +135,17 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-11.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/011.jpeg)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-12.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/012.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-13.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/013.jpeg)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-14.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/014.png)
 
 比赛精彩瞬间
 
@@ -161,15 +161,15 @@
 
 除了精彩的赛场表现，周到的后勤保障同样为赛事顺利进行保驾护航。巧克力、香蕉及时补充体力，矿泉水与电解质饮料随时供应，让师生们能够无后顾之忧地全身心投入比赛。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-15.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/015.jpeg)
 
 轮流担任裁判
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-16.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/016.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-17.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/017.jpeg)
 
   
 
@@ -187,9 +187,9 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-18.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/018.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-19.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/019.png)
 
   
 
@@ -197,13 +197,13 @@ _**TOP 1**_
 
 **冠军组：AI Lab队**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-20.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/020.jpeg)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-21.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/021.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-22.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/022.png)
 
   
 
@@ -211,13 +211,13 @@ _**TOP 2**_
 
 **亚军组：****大聪明队**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-23.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/023.jpeg)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-24.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/024.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-25.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/025.png)
 
   
 
@@ -225,31 +225,31 @@ _**TOP 3**_
 
 **季军组：****羽你通行****队**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-26.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/026.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-27.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/027.png)
 
   
 
 **优胜奖：源神启动队**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-28.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/028.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-29.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/029.png)
 
   
 
 **纪念奖：难忘通宵队**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-30.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/030.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-31.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/031.png)
 
   
 
 **纪念奖：MANC队**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-32.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/032.jpeg)
 
   
 
@@ -261,7 +261,7 @@ _**TOP 3**_
 
 **开心第一，友谊第一**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-33.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/033.png)
 
   
 
@@ -287,9 +287,9 @@ _**TOP 3**_
 
 视频｜许雅迪
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-34.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/034.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban-35.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/035.gif)
 
 —   **版权声明**  —
 

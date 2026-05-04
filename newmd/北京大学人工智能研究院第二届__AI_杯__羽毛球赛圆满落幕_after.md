@@ -5,7 +5,7 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/8S9fyOIlAMD5Q64naTSCeA](https://mp.weixin.qq.com/s/8S9fyOIlAMD5Q64naTSCeA)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-1.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/001.gif)
 
   
 
@@ -17,7 +17,7 @@
 
 **“AI杯”羽毛球赛**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/002.png)
 
 6月22日下午，为进一步拉近师生距离、凝聚班级力量、促进全面发展，北京大学人工智能研究院在五四羽毛球场举办第二届 “AI 杯” 羽毛球赛，6支代表队、60余名师生齐聚赛场。这场赛事不仅延续了首届AI 杯的精彩赛况，更在竞技水平、赛事保障等多个方面实现了突破，充分展现了师生们对体育运动的热爱和对团队精神的追求。
 
@@ -31,7 +31,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-3.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/003.jpeg)
 
 集体合影
 
@@ -43,7 +43,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-4.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/004.svg)
 
   
 
@@ -51,7 +51,7 @@
 
 **比赛现场**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-5.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/005.png)
 
   
 
@@ -89,13 +89,13 @@
 
 **战术讨论**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-6.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/006.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-7.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/007.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-8.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/008.jpeg)
 
   
 
@@ -107,13 +107,13 @@
 
 **蓄势待发**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-9.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/009.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-10.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/010.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-11.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/011.png)
 
   
 
@@ -125,23 +125,23 @@
 
 **精准拦截**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-12.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/012.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-13.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/013.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-14.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/014.svg)
 
 经过激烈角逐，“通班的筒子们”队凭借出色的表现和团队协作，成功卫冕冠军。“MANC”队和“有思路队”获得亚军和季军，其他队伍也展现出了不俗的实力和团队精神，共同为观众呈现了一场精彩纷呈的体育盛宴。
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-15.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/015.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-16.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/016.png)
 
   
 
@@ -149,13 +149,13 @@ _**TOP 1**_
 
 **冠军组通班的筒子们队合影**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-17.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/017.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-18.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/018.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-19.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/019.png)
 
   
 
@@ -163,13 +163,13 @@ _**TOP 2**_
 
 **亚军组****MANC****队合影**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-20.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/020.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-21.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/021.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-22.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/022.png)
 
   
 
@@ -177,39 +177,39 @@ _**TOP 3**_
 
 **季军组****有思路****队合影**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-23.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/023.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-24.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/024.png)
 
   
 
 **拼好队合影**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-25.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/025.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-26.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/026.png)
 
   
 
 **羽毛球体验组合影**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-27.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/027.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-28.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/028.png)
 
   
 
 **源神启动队合影**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-29.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/029.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-30.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/030.png)
 
   
 
 **合影留念**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-31.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/031.png)
 
   
 
@@ -221,7 +221,7 @@ _**TOP 3**_
 
 **总结鸣谢**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-32.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/032.png)
 
 第二届 “AI 杯” 羽毛球赛的成功举办，不仅为师生提供了一个展示自我、增进交流的平台，更增强了班级内部的凝聚力，丰富了师生的业余生活。比赛的成功离不开每一位参赛者的努力和付出，也离不开组委会的精心筹备和组织。本次AI院师生羽毛球友谊赛圆满结束，我们期待下一届 “AI 杯” 羽毛球赛能带来更多惊喜。
 
@@ -235,11 +235,11 @@ _**TOP 3**_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-33.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/033.png)
 
 转载自“北京大学人工智能研究院”公众号
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu-34.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/034.gif)
 
 —   **版权声明**  —
 

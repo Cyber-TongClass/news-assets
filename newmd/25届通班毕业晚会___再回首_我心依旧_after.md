@@ -5,11 +5,11 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/R5ca5GoOfP2rK0YRcnK32g](https://mp.weixin.qq.com/s/R5ca5GoOfP2rK0YRcnK32g)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-1.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/001.gif)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/002.png)
 
   
 
@@ -43,7 +43,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-3.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/003.jpeg)
 
   
 
@@ -51,7 +51,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/004.png)
 
   
 
@@ -59,17 +59,17 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-5.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/005.jpeg)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-6.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/006.png)
 
   
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-7.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/007.png)
 
 **殷殷嘱托：教师寄语**
 
@@ -79,7 +79,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-8.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/008.jpeg)
 
   
 
@@ -87,24 +87,24 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-9.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/009.jpeg)
 
   
 人工智能研究院副院长李文新教授与同学们分享了自己在北大的三段成长故事。她回忆说，大学四年让她明白了很多人生道理：从大一买不到火车票时第一次感受到的现实差距，到大三看到教授摆摊时领悟到的"放下身段"的勇气，再到大四学会游泳后收获的"只要敢尝试就能成功"的信心。李院长用这些亲身经历告诉并鼓励同学们，人生路上总会遇到各种困难，但要保持信念，勇敢前行，要对未知的未来充满希望。
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-10.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/010.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-11.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/011.png)
 
 **千千阙歌：毕业生发言**
 
 25届通班班长牟湛存作为毕业生代表之一发言，回望在通班度过的宝贵时光，他对通班带给他的归属感表达了深切感激。他分享了作为毕业生所感受到的时代责任，激励同学们在学业和职业道路上不断追求进步，并对未来积极保持联系表达了美好的愿望。同时，他也坦诚分享了自己曾经经历的迷茫期，鼓励同学们不必因外界的评价或遥远的目标而感到压抑，要积极寻找生命中的变化和流动，探索和追求真正让自己心动的事物，以此激励同学们找到自己的方向。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-12.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/012.jpeg)
 
   
 
@@ -112,7 +112,7 @@
 
 通班的另一位班长肖茜之带大家回顾了通班从大一至毕业学业内外的种种。不长不短的本科时光里，既有学业带来的挑战、也有学术活动带来的启悟，还有团建为大家增进的友谊。她特别提到了与人工智能研究院和通班相关的各种实践活动，如科技节、学术交流会，以及与行业专家的互动等等，而班级组织的各种班会、经验分享和趣味团建活动则增强了班级凝聚力，促进了同学之间的情感联系。她对未来满怀期待，对班级抱有深厚的情感，回顾这段时光，同学们都感受到了这段经历和友情的珍贵。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-13.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/013.jpeg)
 
   
 
@@ -120,7 +120,7 @@
 
 此后，刘星宇和刘若蕾共同演绎了一首歌《达尼亚》，在悠扬动听的曲调中上半场活动落下帷幕。所有参会师生在禄岛院落中专门搭建的气球拱门前合影，留下了一张张珍贵的毕业影像。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-14.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/014.png)
 
   
 
@@ -128,27 +128,27 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-15.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/015.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-16.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/016.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-17.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/017.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-18.jpeg)
-
-  
-
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-19.png)
-
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-20.png)
-
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-21.png)
-
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-22.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/018.jpeg)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-23.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/019.png)
+
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/020.png)
+
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/021.png)
+
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/022.png)
+
+  
+
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/023.png)
 
 **声声笑语：一起摇摆！**
 
@@ -156,25 +156,25 @@
 
 下半场，平日的教室变身摇摆舞池，通班学子在两位舞蹈老师的带领下跳出青春乐章。当复古爵士乐撞上毕业季，会擦出怎样的火花？通班学子们一个个化身舞林高手，在摇曳灯影中掀起一场即兴摇摆舞风暴。柔和的灯光包裹着满场跃动的身影，地板在爵士鼓点中微微震颤，欢笑声混着舞步声掀翻屋顶——即兴搭档的学子们连成流动的彩虹，此刻的他们是踩着快乐律动的追风少年，在这一刻化作舞池里最闪亮的星。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-24.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/024.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-25.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/025.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-26.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/026.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-27.png)
-
-  
-
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-28.png)
-
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-29.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/027.png)
 
   
 
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/028.png)
+
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/029.png)
+
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-30.png)
+  
+
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/030.png)
 
   
 
@@ -196,13 +196,13 @@
 
 **毕业快乐，愿大家前程锦绣，友谊常青！**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-31.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/031.jpeg)
 
   
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu-32.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/032.png)
 
   
 

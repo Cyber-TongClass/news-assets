@@ -19,9 +19,9 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai-1.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/001.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/002.png)
 
   
 
@@ -29,11 +29,11 @@
 
 **师长寄语，洞见人工智能未来**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai-3.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/003.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/004.png)
 
   
 
@@ -43,7 +43,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai-5.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/005.png)
 
   
 
@@ -53,7 +53,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai-6.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/006.png)
 
   
 
@@ -67,7 +67,7 @@
 
 **回顾展望，携手共绘通班蓝图**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai-7.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/007.png)
 
   
 
@@ -77,9 +77,9 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai-8.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/008.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai-9.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/009.png)
 
 **【朱老师为唐希源老师和梁一韬老师颁发聘书】**
 
@@ -89,7 +89,7 @@
 
 **相聚此刻，共筑同学情谊新篇**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai-10.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/010.png)
 
   
 
@@ -97,7 +97,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai-11.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/011.png)
 
   
 
@@ -105,7 +105,7 @@
 
 **结语：梦想启航，未来可期**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai-12.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/012.png)
 
   
 
@@ -119,7 +119,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai-13.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/013.png)
 
   
 
@@ -127,7 +127,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai-14.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/014.png)
 
 **· END·**
 

@@ -5,15 +5,15 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/b5qxIikiS5jG-cHxq7X9cA](https://mp.weixin.qq.com/s/b5qxIikiS5jG-cHxq7X9cA)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_zixueziyuantuijian-1.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_zixueziyuantuijian/001.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_zixueziyuantuijian-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_zixueziyuantuijian/002.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_zixueziyuantuijian-3.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_zixueziyuantuijian/003.png)
 
 [
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_zixueziyuantuijian-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_zixueziyuantuijian/004.png)
 
 
 
@@ -23,7 +23,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_zixueziyuantuijian-5.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_zixueziyuantuijian/005.png)
 
 请滑动翻阅来自通班的信～
 
@@ -341,9 +341,9 @@ _**05**_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_zixueziyuantuijian-6.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_zixueziyuantuijian/006.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_zixueziyuantuijian-7.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_zixueziyuantuijian/007.jpeg)
 
   
 

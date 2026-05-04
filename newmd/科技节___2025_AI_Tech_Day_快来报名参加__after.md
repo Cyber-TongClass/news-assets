@@ -5,7 +5,7 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/WsRy-EgS3thxv9lr7F7wpg](https://mp.weixin.qq.com/s/WsRy-EgS3thxv9lr7F7wpg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia-1.gif)  
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/001.gif)  
 
   
 
@@ -19,7 +19,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/002.png)
 
   
 
@@ -47,13 +47,13 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia-3.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/003.png)
 
  **活动****介绍**
 
   AI TECH DAY
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/004.png)
 
   
 
@@ -75,13 +75,13 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia-5.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/005.png)
 
  **报名要求**
 
   AI TECH DAY
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia-6.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/006.png)
 
 **报名要求**
 
@@ -101,7 +101,7 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
 1\. 请于 **10月 9 日**前扫描下方**蓝色「科技节报名」**二维码填写征集表。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia-7.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/007.jpeg)
 
 扫描上方二维码抢先报名↑↑↑
 
@@ -110,19 +110,19 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
 (海报规格要求: JPG 格式文件，文件建议≥10M，图片分辨率≥300dpi，横版152cm\*85cm，比例 16:9)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia-8.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/008.png)
 
 扫描上方二维码提交你的作品↑↑↑
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia-9.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/009.png)
 
 **优秀作品评选**
 
   **AI TECH DAY**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia-10.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/010.png)
 
   
 
@@ -176,9 +176,9 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
 _**心动就赶快行动！**_
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia-11.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/011.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia-12.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/012.png)
 
 **AI**
 
@@ -232,13 +232,13 @@ _010-62766178_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia-13.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/013.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia-14.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/014.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia-15.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/015.gif)
 
 —   **版权声明**  —
 

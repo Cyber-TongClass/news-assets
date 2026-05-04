@@ -5,15 +5,15 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/SpKS0PGHl6Xnf4j8RddzNA](https://mp.weixin.qq.com/s/SpKS0PGHl6Xnf4j8RddzNA)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_bianchengrumen_2-1.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_bianchengrumen_2/001.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_bianchengrumen_2-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_bianchengrumen_2/002.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_bianchengrumen_2-3.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_bianchengrumen_2/003.png)
 
 [
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_bianchengrumen_2-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_bianchengrumen_2/004.png)
 
 
 
@@ -23,7 +23,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_bianchengrumen_2-5.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_bianchengrumen_2/005.png)
 
 请滑动翻阅来自通班的信～
 

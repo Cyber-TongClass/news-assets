@@ -5,7 +5,7 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/Ggq6me1qXBGpvc7gRuvpZA](https://mp.weixin.qq.com/s/Ggq6me1qXBGpvc7gRuvpZA)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-1.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/001.jpeg)
 
 三月的北京，春风和煦，生机盎然。值此良辰，来自北京大学通用人工智能实验班（通班）、北京大学智能科学与技术实验班（智班）及清华“通班”的师生相约金海湖，在丰富有趣的活动中，增进彼此间的了解与班级间的友谊、推动班级文化建设、也促进人工智能学子之间的交流互鉴。
 
@@ -15,11 +15,11 @@
 
 到达了上午活动的营地后，同学们在教练的指导下分成五个组，前往对应颜色的有氧鼓区域列队准备。随后，大家在音乐声中跟着教练的动作简单进行热身，在击鼓动作中熟悉了有氧鼓的基本玩法，也在交替拍手中增进了与身边同学的默契。随后，大家为自己的队伍起队名，既有充满幽默韵味的"一塔湖图"，也有富有班级特色的"三读赤壁赋"。这两项活动活跃了现场的氛围，大家对接下来的"挑战"都跃跃欲试。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-2.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/002.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-3.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/003.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/004.png)
 
   
 
@@ -33,7 +33,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-5.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/005.jpeg)
 
   
 
@@ -41,37 +41,37 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-6.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/006.png)
 
         第三项挑战是现场即兴编排，每组自选曲目编排一段有氧鼓演奏片段，选择的曲目风格各异，如《We will rock you》《阳光男孩 阳光女孩》。在演奏编排上，各组各显神通，有的追求音乐性和韵律之美，有的则在表演形式上注入巧思，从各个角度切入，奉献了精彩纷呈的表演。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-7.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/007.jpeg)
 
   
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-8.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/008.jpeg)
 
         最后，全体老师和同学们共同以一曲《旗开得胜》为有氧鼓活动画上了圆满的句号。挑战结束后，大家在草坪上进行了大合影，灰色和蓝色班服的交叠中彰显着通班和智班长青的友谊。随后通班同学和智班同学分别进行合影，喊出的各班口号——"以中国之思想，创世界之科技" "智怀天下，能为人先"——响彻云霄，上午的活动在同学们的凌云壮志中完美收官。
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-9.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/009.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-10.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/010.png)
 
 **通班**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-11.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/011.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-12.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/012.png)
 
 **通班**
 
 **通智天下**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-13.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/013.png)
 
   
 
@@ -83,19 +83,19 @@
 
         在丰盛的午餐后，大家乘车前往下午的目的地——金海湖景区，坐上游船游览了金海湖风光，之后自由选择前往横山公园爬山、徒步和进行定向越野活动，或回到景区其他区域自由活动。有的同学和身边人玩起桌游和飞盘，将平日里的学习任务暂时搁置，全身心投入游戏中，在脑力和体力的交锋中享受纯粹的快乐；有的则三两结伴欣赏自然风光，将身心沉入山水之间，纾解平日的烦恼。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-14.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/014.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-15.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/015.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-16.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/016.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-17.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/017.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-18.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/018.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-19.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/019.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-20.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/020.jpeg)
 
 左右滑动查看更多
 
@@ -109,7 +109,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-21.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/021.jpeg)
 
   
 
@@ -121,29 +121,29 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-22.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/022.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-23.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/023.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-24.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/024.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-25.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/025.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-26.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/026.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-27.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/027.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-28.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/028.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-29.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/029.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-30.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/030.jpeg)
 
 左右滑动查看更多
 
 暮色渐沉，本次通班智班联合团建活动在金海湖畔的欢声与篝火中落下帷幕。在一天的相处中，百余名人工智能学子通过有氧鼓阵协作、团队竞技挑战、户外实践拓展等环节互相熟络起来，欢歌笑语荡漾碧空。从晨间击鼓时“一塔湖图”“三读赤壁赋”的创意破冰，到定向越野中互助前行的身影；从《旗开得胜》的激昂合奏，到《我的中国心》的深情共鸣，活动以多元的形式深化了通智班级之间的交流合作，更在潜移默化中强化了同学们对班级、对学校以至于对人工智能领域的归属感。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban-31.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/031.jpeg)
 
   
 

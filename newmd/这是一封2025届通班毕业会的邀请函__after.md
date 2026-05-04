@@ -5,7 +5,7 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/Mc0K-9n0PmAukzv673basQ](https://mp.weixin.qq.com/s/Mc0K-9n0PmAukzv673basQ)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zheshiyifeng2025jietongbanbiyehuideyaoqinghan-1.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zheshiyifeng2025jietongbanbiyehuideyaoqinghan/001.jpeg)
 
 邀请函制作：牟湛存
 

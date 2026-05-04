@@ -10,7 +10,7 @@ Tong Discussion · 元气充电 | 【计算概论 A】期中考前讨论预告
 时间： 11.1（星期六）20:30-22:30  
 地点：北京大学35楼B111（书法室 / 研讨室）
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Discussion_yuanqichongdian_jisuangailun_A_qizhongkaoqiantaolunyugao-1.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Discussion_yuanqichongdian_jisuangailun_A_qizhongkaoqiantaolunyugao/001.png)
 
 图1
 

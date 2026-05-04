@@ -5,7 +5,7 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/ir8fBaDcpjJb0h6tc3IFXA](https://mp.weixin.qq.com/s/ir8fBaDcpjJb0h6tc3IFXA)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/biyeshengfangtan_mouzhancun_changshishiquedingreaidebiyouzhilu-1.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/biyeshengfangtan_mouzhancun_changshishiquedingreaidebiyouzhilu/001.gif)
 
   
 
@@ -19,7 +19,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/biyeshengfangtan_mouzhancun_changshishiquedingreaidebiyouzhilu-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/biyeshengfangtan_mouzhancun_changshishiquedingreaidebiyouzhilu/002.png)
 
 今年7月，25届通用人工智能实验班本科生顺利毕业，他们将带着在通班、在北大的所学、所思、所获，走向各自广阔的未来。我们采访了部分毕业生，和他们聊聊大学这几年学了什么、做了什么、想了什么，期待这些访谈能为他们留下宝贵的青春回忆，也期待为读到这些访谈的你提供对学业、对生活、对时代、对自己人生的思考。
 
@@ -27,7 +27,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/biyeshengfangtan_mouzhancun_changshishiquedingreaidebiyouzhilu-3.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/biyeshengfangtan_mouzhancun_changshishiquedingreaidebiyouzhilu/003.jpeg)
 
   
 
@@ -39,7 +39,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/biyeshengfangtan_mouzhancun_changshishiquedingreaidebiyouzhilu-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/biyeshengfangtan_mouzhancun_changshishiquedingreaidebiyouzhilu/004.png)
 
   
 
@@ -147,9 +147,9 @@
 
 排版 | 梁文凯玥
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/biyeshengfangtan_mouzhancun_changshishiquedingreaidebiyouzhilu-5.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/biyeshengfangtan_mouzhancun_changshishiquedingreaidebiyouzhilu/005.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/biyeshengfangtan_mouzhancun_changshishiquedingreaidebiyouzhilu-6.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/biyeshengfangtan_mouzhancun_changshishiquedingreaidebiyouzhilu/006.gif)
 
 —   **版权声明**  —
 

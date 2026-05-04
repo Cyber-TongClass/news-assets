@@ -5,7 +5,7 @@ PKU-IAI 冰雪团建活动顺利举办！
 
 > 原文地址: [https://mp.weixin.qq.com/s/LoNsv1qnWp-Z-3wDOuZYVw](https://mp.weixin.qq.com/s/LoNsv1qnWp-Z-3wDOuZYVw)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-1.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/001.svg)
 
   
 
@@ -15,29 +15,29 @@ PKU-IAI 冰雪团建活动顺利举办！
 
 号外号外：PKU通班官方视频号建立啦！欢迎关注！
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-2.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/002.gif)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-3.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/003.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/004.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-5.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/005.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-6.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/006.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-7.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/007.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-8.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/008.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-9.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/009.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-10.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/010.png)
 
   
 
@@ -45,49 +45,49 @@ PKU-IAI 冰雪团建活动顺利举办！
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-11.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/011.gif)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-12.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/012.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-13.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/013.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-14.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/014.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-15.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/015.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-16.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/016.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-17.png)
-
-  
-
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-18.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/017.png)
 
   
 
-  
-
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-19.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/018.jpeg)
 
   
 
   
 
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/019.jpeg)
+
+  
+
   
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-20.jpeg)
+  
+
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/020.jpeg)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-21.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/021.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-22.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/022.png)
 
   
 
@@ -97,9 +97,9 @@ PKU-IAI 冰雪团建活动顺利举办！
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-23.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/023.gif)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-24.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/024.jpeg)
 
 _北京大学人工智能研究院副院长李文新教授致辞_
 
@@ -107,15 +107,15 @@ _北京大学人工智能研究院副院长李文新教授致辞_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-25.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/025.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-26.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/026.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-27.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/027.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-28.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/028.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-29.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/029.png)
 
   
 
@@ -125,21 +125,21 @@ _北京大学人工智能研究院副院长李文新教授致辞_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-30.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/030.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-31.png)
-
-  
-
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-32.png)
-
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-33.png)
-
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-34.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/031.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-35.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/032.png)
+
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/033.png)
+
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/034.png)
+
+  
+
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/035.png)
 
 _大合照_
 
@@ -149,7 +149,7 @@ _大合照_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-36.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/036.gif)
 
   
 
@@ -199,7 +199,7 @@ _大合照_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban-37.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/037.gif)
 
   
 

@@ -5,7 +5,7 @@ Tong Talk | Jiaxin Ge | Mar. 8
 
 > 原文地址: [https://mp.weixin.qq.com/s/oyLrgyfDA\_MPceTXvdqliA](https://mp.weixin.qq.com/s/oyLrgyfDA_MPceTXvdqliA)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Talk_Jiaxin_Ge_Mar_8-1.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Talk_Jiaxin_Ge_Mar_8/001.jpeg)
 
   
 

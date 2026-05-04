@@ -5,9 +5,9 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/SLCubkW0ck9aID5mrkBuBw](https://mp.weixin.qq.com/s/SLCubkW0ck9aID5mrkBuBw)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-1.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/001.gif)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/002.png)
 
   
 
@@ -41,7 +41,7 @@
 
 **邀请你，共赴一场科技盛会！**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-3.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/003.png)
 
   
 
@@ -57,13 +57,13 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/004.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-5.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/005.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-6.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/006.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-7.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/007.png)
 
 10月25日上午，
 
@@ -79,7 +79,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-8.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/008.png)
 
   
 
@@ -125,17 +125,17 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-9.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/009.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-10.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/010.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-11.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/011.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-12.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/012.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-13.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/013.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-14.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/014.png)
 
 大会表彰奖学金获奖学生
 
@@ -181,15 +181,15 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-15.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/015.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-16.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/016.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-17.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/017.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-18.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/018.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-19.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/019.png)
 
   
 
@@ -217,13 +217,13 @@
 
 AI Tech Day · 2025
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-20.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/020.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-21.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/021.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-22.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/022.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-23.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/023.png)
 
   
 
@@ -241,11 +241,11 @@ AI Tech Day · 2025
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-24.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/024.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-25.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/025.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-26.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/026.png)
 
 **《SEGA-DCIM: Design Space Exploration-Guided Automatic Digital CIM Compiler》**
 
@@ -253,11 +253,11 @@ AI Tech Day · 2025
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-27.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/027.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-28.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/028.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-29.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/029.png)
 
 **《MCU: An Evaluation Framework for Open-Ended Game Agents》**
 
@@ -265,11 +265,11 @@ AI Tech Day · 2025
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-30.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/030.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-31.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/031.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-32.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/032.png)
 
 **《大规模文化遗产图像数据化研究》**
 
@@ -277,11 +277,11 @@ AI Tech Day · 2025
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-33.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/033.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-34.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/034.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-35.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/035.png)
 
 **Demo《小北智学：AI助教》**
 
@@ -289,7 +289,7 @@ AI Tech Day · 2025
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-36.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/036.png)
 
 **Demo《乳腺超声基础生成模型BUSGen》**
 
@@ -305,7 +305,7 @@ AI Tech Day · 2025
 
 **展现算法、智能与想象力交织的魅力**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-37.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/037.png)
 
 A neural symbolic model for space physics
 
@@ -313,7 +313,7 @@ A neural symbolic model for space physics
 
 AI辅助科学发现的可行性与潜力
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-38.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/038.png)
 
 Embedding high-resolution touch across robotic hands enables adaptive human-like grasping
 
@@ -321,7 +321,7 @@ Embedding high-resolution touch across robotic hands enables adaptive human-like
 
 关于“具有学习能力的高精度机器人手”的研究成果
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-39.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/039.png)
 
 Language Models Resist Alignment: Evidence From Data Compression
 
@@ -329,7 +329,7 @@ Language Models Resist Alignment: Evidence From Data Compression
 
 在研究语言模型在对齐过程中的内在机制中的贡献
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-40.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/040.png)
 
 Decompositional Neural Scene Reconstruction with Generative Diffusion Prior
 
@@ -337,7 +337,7 @@ Decompositional Neural Scene Reconstruction with Generative Diffusion Prior
 
 实现高保真、可编辑、可交互的场景重建
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-41.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/041.png)
 
 Precise and scalable analogue matrix equation solving using resistive random-access memory chips
 
@@ -345,7 +345,7 @@ Precise and scalable analogue matrix equation solving using resistive random-acc
 
 构建了一个基于阻变存储器阵列的高精度、可拓展的全模拟矩阵方程求解器。为应对未来智能计算与通信系统中的算力瓶颈提供了具有前景的技术平台。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-42.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/042.jpeg)
 
 vLLM-Ascend竞争力构建与实践
 
@@ -365,23 +365,23 @@ vLLM-Ascend竞争力构建与实践
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-43.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/043.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-44.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/044.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-45.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/045.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-46.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/046.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-47.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/047.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-48.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/048.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-49.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/049.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-50.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/050.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-51.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/051.png)
 
 左右滑动查看获奖同学合影
 
@@ -413,13 +413,13 @@ vLLM-Ascend竞争力构建与实践
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-52.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/052.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-53.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/053.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-54.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/054.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-55.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/055.png)
 
   
 
@@ -445,13 +445,13 @@ vLLM-Ascend竞争力构建与实践
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-56.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/056.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-57.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/057.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-58.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/058.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-59.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/059.png)
 
   
 
@@ -485,7 +485,7 @@ vLLM-Ascend竞争力构建与实践
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-60.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/060.png)
 
   
 
@@ -505,11 +505,11 @@ vLLM-Ascend竞争力构建与实践
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-61.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/061.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-62.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/062.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-63.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/063.png)
 
   
 
@@ -523,9 +523,9 @@ vLLM-Ascend竞争力构建与实践
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-64.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/064.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui-65.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/rengongzhinengxueshengkejijie_zaibeida_gongfuyichangkejishenghui/065.gif)
 
   
 

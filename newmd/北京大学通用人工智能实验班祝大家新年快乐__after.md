@@ -5,7 +5,7 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/E4WvNMa\_kg1WDMrEwcupgA](https://mp.weixin.qq.com/s/E4WvNMa_kg1WDMrEwcupgA)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile-1.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile/001.png)
 
 **北京大学通用**
 
@@ -13,7 +13,7 @@
 
 **祝大家2025新年快乐！**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile/002.png)
 
 风回仙驭云开扇，更阑月坠星河转。
 
@@ -29,13 +29,13 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile-3.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile/003.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile/004.png)
 
  新年祝福
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile-5.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile/005.png)
 
   
 
@@ -49,23 +49,23 @@ MV中充满通班人最美好的回忆
 
 一起来看看原版吧～
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile-6.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile/006.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile-7.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile/007.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile-8.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile/008.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile-9.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile/009.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile-10.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile/010.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile-11.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile/011.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile-12.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile/012.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile-13.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile/013.jpeg)
 
 **我相信（通班版）**  
 
@@ -153,7 +153,7 @@ I do believe
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile-14.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajiaxinniankuaile/014.jpeg)
 
   
 

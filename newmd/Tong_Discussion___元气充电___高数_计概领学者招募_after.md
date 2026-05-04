@@ -9,15 +9,15 @@ Tong Discussion · 元气充电 | 高数&计概领学者招募
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Discussion_yuanqichongdian_gaoshu_jigailingxuezhezhaomu-1.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Discussion_yuanqichongdian_gaoshu_jigailingxuezhezhaomu/001.jpeg)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Discussion_yuanqichongdian_gaoshu_jigailingxuezhezhaomu-2.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Discussion_yuanqichongdian_gaoshu_jigailingxuezhezhaomu/002.jpeg)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Discussion_yuanqichongdian_gaoshu_jigailingxuezhezhaomu-3.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Discussion_yuanqichongdian_gaoshu_jigailingxuezhezhaomu/003.png)
 
 **深耕学术、乐于分享的学长学姐们：**
 
@@ -27,7 +27,7 @@ Tong Discussion · 元气充电 | 高数&计概领学者招募
 
 **通班学术部x元培学学学“Tong Discussion · 元气充电”项目的初衷**，也绝不只希望为大家提供扎实的学业辅导，帮大家顺利克服数理基础课的过渡；我们也希望在讨论和线下的活动中提供开放的环境，为同学们提供一个随时到来、轻松自如的支持氛围。我们需要有热情、有能力的你，担任课程助教，用你的知识为新生铺就温暖的成长阶梯，编织共同生活的有机体。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Discussion_yuanqichongdian_gaoshu_jigailingxuezhezhaomu-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Discussion_yuanqichongdian_gaoshu_jigailingxuezhezhaomu/004.png)
 
   
 
@@ -71,7 +71,7 @@ Tong Discussion · 元气充电 | 高数&计概领学者招募
 
 2.简要沟通：我们将联系您简短沟通，增加匹配度，与您协商具体工作细节。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Discussion_yuanqichongdian_gaoshu_jigailingxuezhezhaomu-5.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Discussion_yuanqichongdian_gaoshu_jigailingxuezhezhaomu/005.jpeg)
 
   
 

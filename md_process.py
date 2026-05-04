@@ -27,8 +27,8 @@ def to_pinyin(text: str) -> str:
     return "".join(result)
 
 
-def slugify_title(title: str) -> str:
-    text = to_pinyin(title)
+def slugify_filename(name: str) -> str:
+    text = to_pinyin(name)
     out = []
     for ch in text:
         if ch.isalnum():
@@ -141,7 +141,7 @@ def build_cdn_url(repo: str, asset_path: Path) -> str:
 
 def process_markdown(
     text: str,
-    title: str,
+    file_slug: str,
     assets_dir: Path,
     repo: str,
     proxies: Dict[str, str],
@@ -161,16 +161,15 @@ def process_markdown(
             return match.group(0)
 
         ext = extract_extension(url)
-        slug = slugify_title(title)
 
         if filename_mode == "title-index":
-            filename = f"{slug}-{image_index}.{ext}"
+            filename = f"{image_index:03d}.{ext}"
         else:
-            filename = f"{slug}-{image_index}.{ext}"
+            filename = f"{image_index:03d}.{ext}"
 
         image_index += 1
 
-        output_path = assets_dir / filename
+        output_path = assets_dir / file_slug / filename
         if not download_image(url, output_path, image_proxies, image_sleep_ms, max_retries, timeout_sec):
             return match.group(0)
         downloaded.append(output_path)
@@ -225,11 +224,11 @@ def process_file(
     lines = strip_css_from_first_line(lines)
     lines = remove_garbage_lines(lines)
     lines = normalize_title_line(lines)
-    title = find_title(lines)
+    file_slug = slugify_filename(input_path.stem)
 
     processed_text, _ = process_markdown(
         text=text,
-        title=title,
+        file_slug=file_slug,
         assets_dir=assets_dir,
         repo=repo,
         proxies=proxies,
@@ -272,6 +271,9 @@ def main() -> int:
         output_dir = Path("newmd")
         output_dir.mkdir(parents=True, exist_ok=True)
         output_path = output_dir / f"{input_path.stem}_after{input_path.suffix}"
+        if output_path.exists():
+            print(f"SKIP: {output_path} already exists")
+            return 0
         process_file(
             input_path,
             output_path,
@@ -291,6 +293,9 @@ def main() -> int:
         output_dir = Path("newmd")
         output_dir.mkdir(parents=True, exist_ok=True)
         output_path = output_dir / f"{md_file.stem}_after{md_file.suffix}"
+        if output_path.exists():
+            print(f"SKIP: {output_path} already exists")
+            continue
         process_file(
             md_file,
             output_path,

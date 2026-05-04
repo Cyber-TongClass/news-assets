@@ -5,7 +5,7 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/Wm0Ju4X4SO0KHEGl3IMYcw](https://mp.weixin.qq.com/s/Wm0Ju4X4SO0KHEGl3IMYcw)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-1.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/001.gif)
 
   
 
@@ -19,7 +19,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/002.png)
 
 去年，以通班吉祥物猫猫为形象的表情包一经上线就受到了广大师生的热烈欢迎！
 
@@ -33,7 +33,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-3.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/003.gif)
 
   
 
@@ -43,7 +43,7 @@ _**1**_
 
 **"自我介绍"**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/004.png)
 
   
 
@@ -51,7 +51,7 @@ _**1**_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-5.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/005.jpeg)
 
   
 
@@ -79,7 +79,7 @@ _**1**_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-6.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/006.gif)
 
   
 
@@ -89,11 +89,11 @@ _**2**_
 
 **“通小喵”第二弹**  
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-7.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/007.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-8.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/008.png)
 
 **【哇】**
 
@@ -113,11 +113,11 @@ _**2**_
 
 「小剧场」：诶我跟你讲，最近35号猫咖又......
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-9.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/009.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-10.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/010.png)
 
 **【离谱】**
 
@@ -135,11 +135,11 @@ _**2**_
 
 「小剧场」：真的！！！我也特别震惊！！！完全目瞪口呆😧
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-11.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/011.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-12.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/012.png)
 
 **【哈哈哈】**
 
@@ -157,11 +157,11 @@ _**2**_
 
 你确定要研究Cat Grasping and Manipulation吗，人类？？
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-13.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/013.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-14.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/014.png)
 
 **【累】**
 
@@ -179,11 +179,11 @@ _**2**_
 
 和我最爱的冰糖握手手~~
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-15.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/015.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-16.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/016.png)
 
 **【哎】**
 
@@ -201,11 +201,11 @@ _**2**_
 
 大家都来安慰本喵，好感动呜呜呜呜呜
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-17.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/017.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-18.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/018.png)
 
 **【救命】**
 
@@ -223,11 +223,11 @@ _**2**_
 
 掌声在哪里！
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-19.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/019.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-20.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/020.png)
 
 **【对不起】**
 
@@ -245,11 +245,11 @@ dbq，下次一定注意！
 
 刚考完期中又快期末了，裂开ing
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-21.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/021.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-22.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/022.png)
 
 **【心碎】**
 
@@ -267,13 +267,13 @@ my broken heart(哭哭)
 
 各位老师同学们辛苦啦~
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-23.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/023.png)
 
   
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-24.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/024.gif)
 
   
 
@@ -283,7 +283,7 @@ _**3**_
 
 **正式上线**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-25.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/025.png)
 
   
 
@@ -301,15 +301,15 @@ _**3**_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-26.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/026.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-27.png)
-
-  
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/027.png)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian-28.gif)
+  
+
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanbanjibiaoqingbao_tongxiaomiao_dierdanhuoreshangxian/028.gif)
 
 · END · 
 

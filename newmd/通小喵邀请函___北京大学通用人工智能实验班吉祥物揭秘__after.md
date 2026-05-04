@@ -7,23 +7,23 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-1.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/001.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/002.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-3.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/003.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/004.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-5.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/005.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-6.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/006.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-7.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/007.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-8.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/008.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-9.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/009.png)
 
   
 
@@ -33,15 +33,15 @@
 
 天地迎春，万象更新。值此新春佳节之际，让我们一起来认识北京大学通用人工智能实验班的两位新同学喵～
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-10.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/010.jpeg)
 
 大家好！我们是“冰糖雪泥”组合～
 
 **猫咪档案 / 01**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-11.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/011.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-12.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/012.jpeg)
 
 **姓名：雪泥**
 
@@ -61,9 +61,9 @@
 
 喜欢在猫爬架上活动筋骨，喜欢你拿逗猫棒陪我玩，喜欢你用小梳子给我梳理毛发，喜欢你轻轻抚摸我、胡噜我的下巴、脑袋和后背。当然，最喜欢的还是你用美味的猫条投喂我啦～
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-13.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/013.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-14.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/014.jpeg)
 
 **喵~**
 
@@ -73,15 +73,15 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-15.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/015.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-16.jpeg)
-
-  
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/016.jpeg)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-17.jpeg)
+  
+
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/017.jpeg)
 
 当然，作为通班的吉祥物，我必定是一只积极上进、热爱科研的小猫！以下是摘自本喵主页的介绍：
 
@@ -151,9 +151,9 @@
 
 **猫咪档案 / 02**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-18.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/018.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-19.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/019.jpeg)
 
 **姓名：冰糖**
 
@@ -177,21 +177,21 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-20.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/020.jpeg)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-21.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/021.jpeg)
 
   
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-22.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/022.jpeg)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-23.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/023.jpeg)
 
 作为通班的小猫，虽然我年纪还小、刚刚入学不久，我也是一只热爱人工智能、积极开始投身科研的小小猫！以下是摘自本喵主页的介绍：
 
@@ -229,9 +229,9 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-24.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/024.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-25.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/025.jpeg)
 
   
 
@@ -241,19 +241,19 @@
 
 蛇龟献瑞，虎跃龙腾，通班吉祥物雪泥、冰糖两只小猫在这里祝大家学习进步、工作顺利、身体健康，考试考的都会、做的都对，论文全都能中稿，好的想法都能实现，同通班的老师同学们一起向大家拜年啦！新春快乐喵～
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-26.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/026.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-27.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/027.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-28.jpeg)
-
-  
-
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-29.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/028.jpeg)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-30.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/029.jpeg)
+
+  
+
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/030.jpeg)
 
   
 
@@ -269,7 +269,7 @@
 
 以雪泥形象制作的通班班级微信表情包**“通小喵”**已经火热上线！欢迎扫描**二维码下载**使用~
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi-31.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongxiaomiaoyaoqinghan_beijingdaxuetongyongrengongzhinengshiyanbanjixiangwujiemi/031.png)
 
 ps. 敬请期待第二弹～
 

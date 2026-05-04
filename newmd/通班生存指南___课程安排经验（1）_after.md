@@ -5,15 +5,15 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/BoIILYR-wZjI1v46Yn320Q](https://mp.weixin.qq.com/s/BoIILYR-wZjI1v46Yn320Q)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-1.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/001.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/002.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-3.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/003.png)
 
 [
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/004.png)
 
 
 
@@ -23,7 +23,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-5.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/005.png)
 
 本期概要
 
@@ -37,7 +37,7 @@ Administrative Details
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-6.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/006.png)
 
 以下内容部分摘选自《元培学院新生手册2025》。
 
@@ -53,29 +53,29 @@ Administrative Details
 
 元培学院实行弹性学习年限，为学生的学习发展提供个性化时间保障。学生可根据自身学习安排，申请提前一年或推迟一到两年毕业。根据《关于元培学院学生学习年限的学籍管理决定》，符合下列情况之一的学生可申请延长学习年限：
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-7.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/007.svg)
 
 第三学期后调换专业、不能在四年之内按时完成新选择专业教学计划规定的课程；
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-8.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/008.svg)
 
 进行跨学科专业（教育部专业目录内的跨学科专业）学习；
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-9.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/009.svg)
 
 为形成其他类型跨学科的知识结构而学习。这类学生应当提交未来的课程学习计划，并经过至少两名相关学科的元培导师审核并予以推荐。
 
 有下列情况者一般不批准延长学习年限：
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-10.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/010.svg)
 
 因选修双学位/辅修课程而影响主修专业教学计划完成者；
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-11.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/011.svg)
 
 因出国交流选课较少影响教学计划按时完成者；
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-12.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/012.svg)
 
 申请时不及格课程达到15学分及以上者。
 
@@ -97,7 +97,7 @@ Lecture Arrangements
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-13.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/013.png)
 
 首先，关于北京大学的课程体系，详见教务部发布的指南：[新生选课指南（中） | 快来解锁北大的课程体系！](https://mp.weixin.qq.com/s?__biz=MzIzNzc4ODkxOA==&mid=2247520749&idx=1&sn=3688c1fa83d9c3a4fb92399c23943596&scene=21#wechat_redirect)
 
@@ -111,7 +111,7 @@ Lecture Arrangements
 
 计算概论A（+上机实习课，大一秋季，3学分）与数据结构与算法(A)（大二秋季，3学分)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-14.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/014.jpeg)
 
 而通班的通识课学分要求相比元培学院的 11 + 1（新讨），减少为了 8 + 1，但仍需要第 I/II 类至少修一门，第 III/IV 类至少修一门。通识课列表见三学（元培学院学生学术学会）推送：[2025-2026学年秋季学期通识课信息汇总（2022-2025级适用）](https://mp.weixin.qq.com/s?__biz=MzA3ODk4MTYwOA==&mid=2649929049&idx=1&sn=ee3d6bc24815097d6c0afb8a3144ade6&scene=21#wechat_redirect)
 
@@ -123,7 +123,7 @@ Lecture Arrangements
 
 **专业必修课程（共73学分）**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-15.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/015.jpeg)
 
 另有毕业论文（设计）的6学分。
 
@@ -133,23 +133,23 @@ Lecture Arrangements
 
 **计算机核心基础课程**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-16.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/016.jpeg)
 
 **数理基础课程**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-17.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/017.jpeg)
 
 **人工智能前沿课程**  
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-18.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/018.jpeg)
 
 **人工智能的物理及心理学基础课程**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-19.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/019.jpeg)
 
 **人工智能与人文社科交叉类课程**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-20.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/020.jpeg)
 
   
 
@@ -241,19 +241,19 @@ Lecture Arrangements
 
 笔者头脑风暴了几个可能的diy操作：
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-21.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/021.svg)
 
 **大一秋季**，确保自己能秒掉高数A/线代A/计概A中的某一门的前提下，提前修大二秋季的数算A（需要提前掌握什么知识请在树洞了解，最好有信息竞赛基础、熟悉C++，OI选手可以考虑）/离散数学基础（离散数学与结构是图班专业课，你能否hold住请参考树洞评价，个人认为即使有数竞基础也不好拿下，其实非常不建议在大一就尝试这个），后者对先修的要求较低（特指离散数学基础）。如果对3A没有把握的话不要贸然尝试，还是按照正常的节奏来学习，真实地体会一下平时和期中期末季的强度，作为未来选课的参考。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-22.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/022.svg)
 
 **大一春季**，高数A（二） + 概统（A） + AI引论/AI基础 + 程设/软设（二者在后半学期有较大区别，但是都是很值得一上的专业选修课）也有一定的强度（这基本是大家统一的操作），在此基础上可以不用再提前修其它专业必修课。不过可以尝试旁听信科的计算机视觉导论，具体原因以及对自己是否有必要请善用搜索后自行评估。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-23.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/023.svg)
 
 **大二秋季**如果按照培养方案的安排来选课，部分同学可能会觉得时间和精力相对紧张，对于这部分同学，这里进行一点灵活的调整还是比较合理的。到了大二，部分学有余力的同学会开始进入课题组实习。增加了科研的时间支出后，难免遇见如何平衡课内与科研这个老生常谈的问题。各个学长学姐不同的diy方案就是他们自己对此尝试的答复。个人认为，如果没有物竞基础但又有提前修后续专业课（比如ML、CV、NLP）的需要，可以适当延后近物导的选课学年。ICS + ML + 数算 + 离散 的任务量也不小，但并非不能克服（x）如果去年修过了数算/离散，那么 ICS + ML + NLP + 离散/数算 也是可以的。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-24.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/024.svg)
 
 如果你感觉大一春/大二秋（扔课版）压力较小，但空闲又不足以让你多消化一门专业课，不妨选人工智能系统实践I作为科研的入门课（课程信息详见人工智能研究院2024年9月的推送）。
 
@@ -271,7 +271,7 @@ Information Seeking
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-25.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/025.png)
 
 专业必修课的骨架之上，你可以灵活地填充专业选修课、自主选修课、通识课、思政课、英语课、体育课，以及你感兴趣的其它课，选之前尽量做好充分的调查～
 
@@ -293,19 +293,19 @@ Information Seeking
 
 笔者自己关于选课的信息一大部分来源于树洞，树洞上获取这类信息是很方便的，比如：
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-26.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/026.svg)
 
 平时用“通班”“ai”“xk”“信科”等tag可能会遇见同学们对某一门课的推荐/吐槽/QA/资料分享；
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-27.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/027.svg)
 
 开学前和期末后可以看到一大批新鲜热乎的课程测评洞，比较有时效性；
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-28.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/028.svg)
 
 选课前，针对目标课程的课程名（简称）在树洞里做充分的检索，有多个同名课程时可以带上老师的姓名（首字母）（e.g. “机器学习 zmh”，最好遍历一下你能想到的所有的tag组合，尽量不漏掉重要信息），然后有精力的话可以一直看到树洞里的第一个相关帖子（高数这种巨型公共课就不要尝试了x）；
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-29.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/029.svg)
 
 期末结束且出分完毕后，有可能会有统分洞，里面的成绩分布可供**批判性**参考。
 
@@ -313,15 +313,15 @@ Information Seeking
 
 以下是几个筛选有效信息的原则：
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-30.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/030.svg)
 
 查询树洞课程测评/过往学姐在新生手册里的建议时，需要关注其时效性。最重要的一点是，在PNP政策的影响下，“给分好”“刷分”“调分”“正态”等字眼需要注意，以往的经验和思维方式不一定还会奏效；另外，最好降低某课程在改革前的评价对判断的影响（树洞搜课程测评时一定不要只搜去年的，多翻几年有助于看出变化/降低偶然性；看祖传资料时，关注学长学姐的年级，看看ta们当年上的那门课和你现在关注的这门课之间是否有重大改革带来的差异）；
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-31.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/031.svg)
 
 评估测评洞洞主的水平是很有必要的。由此，我们可以判断ta的测评对自己的可信度（“小马过河”）。对于每学期都发一个测评洞的“连续剧”主角型洞主，我们很方便做到这一点；
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1-32.svg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_kechenganpaijingyan_1/032.svg)
 
 不要轻信统分洞，匿名统分洞里保不准有大量虚报的分数，导致预期的错位。
 

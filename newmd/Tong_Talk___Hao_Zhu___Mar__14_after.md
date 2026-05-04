@@ -5,7 +5,7 @@ Tong Talk | Hao Zhu | Mar. 14
 
 > 原文地址: [https://mp.weixin.qq.com/s/z5qHzlk1PmE0dWW\_H9nZww](https://mp.weixin.qq.com/s/z5qHzlk1PmE0dWW_H9nZww)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Talk_Hao_Zhu_Mar_14-1.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Talk_Hao_Zhu_Mar_14/001.jpeg)
 
 地点：北京大学35楼 B217
 

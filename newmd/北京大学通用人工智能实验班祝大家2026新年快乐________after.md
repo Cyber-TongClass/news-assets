@@ -5,47 +5,47 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/Q2ccWfDCEBboZEsyY54Kqw](https://mp.weixin.qq.com/s/Q2ccWfDCEBboZEsyY54Kqw)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile-1.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile/001.jpeg)
 
 图1
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile-2.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile/002.jpeg)
 
 图2
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile-3.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile/003.jpeg)
 
 图3
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile-4.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile/004.jpeg)
 
 图4
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile-5.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile/005.jpeg)
 
 图5
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile-6.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile/006.jpeg)
 
 图6
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile-7.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile/007.jpeg)
 
 图7
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile-8.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile/008.jpeg)
 
 图8
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile-9.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile/009.jpeg)
 
 图9
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile-10.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile/010.jpeg)
 
 图10
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile-11.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuetongyongrengongzhinengshiyanbanzhudajia2026xinniankuaile/011.jpeg)
 
 图11
 

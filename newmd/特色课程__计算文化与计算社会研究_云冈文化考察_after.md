@@ -5,9 +5,9 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/\_x1t8xv0QNPh-38UtukSgg](https://mp.weixin.qq.com/s/_x1t8xv0QNPh-38UtukSgg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-1.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/001.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/002.png)
 
   
 
@@ -15,9 +15,9 @@
 
 此次考察不仅是一次知识的积累，更是一次心灵的洗礼，让我们在历史与现代的交融中，感受到了文化的力量。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-3.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/003.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/004.png)
 
 **part 1**
 
@@ -35,11 +35,11 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-5.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/005.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-6.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/006.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-7.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/007.jpeg)
 
       3月22日上午，我们在研究院门口集合，正式开启了云冈石窟的探秘之旅。我们有幸邀请到了资深云岗研究者王恒书记为我们做专家讲解。王恒书记的讲解细致丰富、幽默风趣，不仅让我们对云冈石窟的历史背景、艺术特色有了更深入的了解，还在讲解过程中与师生积极互动，解答大家心中的疑惑，让整个参观过程充满了乐趣和收获。此次我们参观了一、二、三、六窟等等，其中六窟更是进行了详细的参观。
 
@@ -47,23 +47,23 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-8.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/008.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-9.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/009.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-10.jpeg)
-
-  
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/010.jpeg)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-11.png)
+  
+
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/011.png)
 
 **part 2**
 
 学术讲座：石窟研究的前沿探索
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-12.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/012.png)
 
 午餐过后，我们在云冈研究院聆听了一系列精彩的讲座。
 
@@ -75,15 +75,15 @@
 
 通过这些讲座，我们不仅拓宽了学术视野，还深刻感受到数字化技术与人工智能对于文化遗产的保护与研究的重要作用，为我们今后的学习和研究提供了新的思路和方向。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-13.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/013.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-14.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/014.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-15.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/015.jpeg)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-16.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/016.png)
 
 **part 3**
 
@@ -95,31 +95,31 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-17.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/017.png)
 
 **part 4**
 
 华严寺：辽金建筑艺术的典范
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-18.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/018.jpeg)
 
       3月23日上午，我们乘坐大巴前往大同华严寺。华严寺是中国现存年代较早、保存较完整的一座辽金佛教寺院建筑群 ，始建于辽重熙七年，依据佛教经典《华严经》而命名，兼具辽国皇室宗庙性质，地位显赫。
 
       在云冈研究院文博研究员李雪芹的带领下，我们详细参观了华严寺。华严寺坐西向东，南北长208米，东西宽298米，占地面积66000平方米。寺庙分上华严寺与下华严寺，上华严寺以大雄宝殿为中心，分为两院，有山门、过殿、观音阁、地藏阁及两厢廊庑，布局严整，高低错落。下华严寺位于上华严寺的东南侧，以薄伽教藏殿为中心，有辽代塑像、石经幢、楼阁式藏经柜和天宫楼阁等。华严宝塔位于下华严寺，是全国第二大纯木榫卯结构的方形木塔，塔高43余米，塔下有近500平方米的地宫，内供高僧舍利以及千余尊佛像。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-19.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/019.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-20.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/020.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-21.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/021.jpeg)
 
 通过李雪芹研究员的讲解，我们了解到华严寺在历史上经历了多次损毁与重建，每一次的变迁都承载着丰富的历史文化信息。在这里，我们不仅欣赏到了精美的辽金建筑艺术，还感受到了佛教文化的博大精深。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-22.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/022.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-23.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/023.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-24.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/024.jpeg)
 
 同学的话
 
@@ -147,7 +147,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha-25.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tesekecheng_jisuanwenhuayujisuanshehuiyanjiu_yungangwenhuakaocha/025.png)
 
 **END**
 

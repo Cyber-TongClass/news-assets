@@ -11,7 +11,7 @@
 向陈博远同学学习！  
 #北京大学学生年度人物
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/reliezhuhe2022jitongbanchenboyuantongxueronghuobeijingdaxuexueshengniandurenwu-1.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/reliezhuhe2022jitongbanchenboyuantongxueronghuobeijingdaxuexueshengniandurenwu/001.jpeg)
 
 图1
 

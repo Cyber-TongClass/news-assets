@@ -5,13 +5,13 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/tnPBBIyjpbj0UifFwC499A](https://mp.weixin.qq.com/s/tnPBBIyjpbj0UifFwC499A)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-1.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/001.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/002.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-3.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/003.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/004.png)
 
 **智能新篇章**
 
@@ -21,9 +21,9 @@
 
 学生大会暨第三届科技节
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-5.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/005.gif)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-6.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/006.gif)
 
 2025年10月15日，秋日的凉风和金叶点缀着燕园，由人工智能研究院主办的2025年度学生大会于北京大学百周年纪念讲堂李莹厅如期开展。
 
@@ -45,7 +45,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-7.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/007.jpeg)
 
   
 
@@ -61,7 +61,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-8.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/008.jpeg)
 
   
 
@@ -73,7 +73,7 @@
 
 信息科学技术学院党委副书记贾方健随后致辞并对青年学子提出希望。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-9.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/009.jpeg)
 
 图 | 贾方健书记致辞
 
@@ -81,7 +81,7 @@
 
 北京大学人工智能研究院、智能学院院长，北京通用人工智能研究院院长朱松纯教授致辞。他介绍到，北大通班现有五届、170余名学生，清华通班与北大智班分别也在稳步发展。北清通班及智班学生已在国际顶会发表论文百余篇，在多项竞赛中获奖，并积极参与国家级科研项目，成为北京人工智能创新指数快速增长的重要力量。他强调，通班的三大核心理念是“通识、通智、通用”，即强调人工智能与人文社会科学的深度融合、关注通用智能的整体性研究、体现人工智能在各行各业的广泛应用与社会渗透。他还分享了“社会智能”的最新研究理念，提出未来人工智能将从个体智能迈向群体、社会乃至文明层面的复杂系统研究，强调“人机社会学”将成为智能时代的重要前沿方向。最后，他鼓励同学们胸怀理想、勇于创新，在智能时代的浪潮中以科学精神和社会责任并行，勇敢登场、扬帆起航，为中国乃至世界的智能文明建设贡献青春与智慧。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-10.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/010.jpeg)
 
 图 | 朱松纯院长致辞
 
@@ -99,21 +99,21 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-11.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/011.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-12.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/012.png)
 
   
 
 **学生代表发言**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-13.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/013.gif)
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-14.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/014.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-15.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/015.jpeg)
 
 图 | 学生代表发言
 
@@ -133,13 +133,13 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-16.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/016.jpeg)
 
 **颁奖仪式**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-17.gif)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/017.gif)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-18.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/018.jpeg)
 
   
 
@@ -149,7 +149,7 @@
 
 北大通班2022级陈博远表达了对学院、师长和同学的感激，他回顾了三年来在通用人工智能实验班的学习与科研经历，体会到个人成长与蜕变，并表示将以“用技术温暖社会、以初心回应时代”的信念不负时代使命。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-19.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/019.jpeg)
 
 图 | 陈博远发言
 
@@ -157,7 +157,7 @@
 
 通班首届毕业生、人工智能研究院博士生林昊苇代表获奖同学致谢，表示在快速发展的AI领域将以更踏实的态度专注科研，珍惜荣誉与支持，努力产出有社会价值的成果。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-20.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/020.jpeg)
 
 图 | 林昊苇发言
 
@@ -173,7 +173,7 @@
 
 随后，北京通用人工智能研究院具身机器人中心执行主任黄思远介绍了具身机器人中心的前沿研究，展示团队在创新实践中的成就，并对世界机器人大赛情况进行分享。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-21.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/021.jpeg)
 
 图 | 黄思远介绍
 
@@ -183,7 +183,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-22.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/022.jpeg)
 
   
 
@@ -197,7 +197,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-23.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/023.jpeg)
 
   
 
@@ -209,7 +209,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban-24.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/024.jpeg)
 
   
 

@@ -7,7 +7,7 @@ Tong Zhi Talk | Language Models Resist Alignment
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Zhi_Talk_Language_Models_Resist_Alignment-1.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Zhi_Talk_Language_Models_Resist_Alignment/001.png)
 
   
 

@@ -5,7 +5,7 @@ Tong Talk | Jingwu Tang | Apr. 12
 
 > 原文地址: [https://mp.weixin.qq.com/s/-M-0Wry1miMeFHHqHwufWw](https://mp.weixin.qq.com/s/-M-0Wry1miMeFHHqHwufWw)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Talk_Jingwu_Tang_Apr_12-1.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Talk_Jingwu_Tang_Apr_12/001.png)
 
   
 

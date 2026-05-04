@@ -5,7 +5,7 @@ Tong Talk | Shaofeng Yin | Apr. 11
 
 > 原文地址: [https://mp.weixin.qq.com/s/D0kMsBJtthEZzpKmOucsOQ](https://mp.weixin.qq.com/s/D0kMsBJtthEZzpKmOucsOQ)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Talk_Shaofeng_Yin_Apr_11-1.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Talk_Shaofeng_Yin_Apr_11/001.png)
 
   
 

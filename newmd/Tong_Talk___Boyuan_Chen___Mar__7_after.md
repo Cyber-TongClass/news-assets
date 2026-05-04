@@ -7,7 +7,7 @@ Tong Talk | Boyuan Chen | Mar. 7
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Talk_Boyuan_Chen_Mar_7-1.jpeg)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/Tong_Talk_Boyuan_Chen_Mar_7/001.jpeg)
 
   
 

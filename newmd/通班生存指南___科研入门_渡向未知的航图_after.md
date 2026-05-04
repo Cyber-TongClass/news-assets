@@ -5,15 +5,15 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/URrBsMde1R\_Z0fikou0pIQ](https://mp.weixin.qq.com/s/URrBsMde1R_Z0fikou0pIQ)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu-1.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu/001.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu-2.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu/002.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu-3.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu/003.png)
 
 [
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu-4.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu/004.png)
 
 
 
@@ -23,7 +23,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu-5.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu/005.png)
 
 笔者序
 
@@ -37,7 +37,7 @@ _**00**_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu-6.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu/006.png)
 
 AI方面的入门学习资源，往期的[《自学资源推荐》](https://mp.weixin.qq.com/s?__biz=Mzk1Nzg0MzM0OQ==&mid=2247485296&idx=1&sn=f7c3823303c1460b97a0927ca8aa672e&scene=21#wechat_redirect)已经推荐了很多课程和自学资源，欢迎同学们回顾查阅。
 
@@ -67,7 +67,7 @@ _**01**_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu-7.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu/007.png)
 
   
 
@@ -101,7 +101,7 @@ _**02**_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu-8.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu/008.png)
 
 进组后，指导老师自会带领你按部就班踏踏实实完成一个一个研究项目，我再怎么多舌也不如每个组指导得精辟入理。不妨讲讲下一件最让人焦虑迷茫的事——暑研和申请。
 
@@ -171,7 +171,7 @@ _**03**_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu-9.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu/009.png)
 
 科研、升学是很多北大学生的惯性，在更多学长学姐的信息资讯、不愿放弃积累的沉没成本、北大大部分学院的浓厚学术氛围下，或许很多同学从来没有考虑过本科就业。
 
@@ -245,7 +245,7 @@ _**04**_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu-10.png)
+![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_keyanrumen_duxiangweizhidehangtu/010.png)
 
 以下是我劝慰一名匿名树洞洞主的话，ta从小梦想当科学家，大学为之付出了很多心血，却屡屡碰壁受挫。如果你迈过了以上的多道槛，抱有极大的理想和热情持续努力，可发觉在科研上的成果配不上你的付出，不知道这段话是否能让你得到一些宽慰。
 
