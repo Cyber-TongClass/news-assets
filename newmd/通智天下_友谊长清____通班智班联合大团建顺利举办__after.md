@@ -19,7 +19,7 @@
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/003.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/004.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/004.png) -->
 
   
 
@@ -41,7 +41,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/006.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/006.png) -->
 
         第三项挑战是现场即兴编排，每组自选曲目编排一段有氧鼓演奏片段，选择的曲目风格各异，如《We will rock you》《阳光男孩 阳光女孩》。在演奏编排上，各组各显神通，有的追求音乐性和韵律之美，有的则在表演形式上注入巧思，从各个角度切入，奉献了精彩纷呈的表演。
 
@@ -59,19 +59,19 @@
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/009.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/010.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/010.png) -->
 
 **通班**
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/011.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/012.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/012.png) -->
 
 **通班**
 
 **通智天下**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/013.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/013.png) -->
 
   
 
@@ -121,7 +121,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/022.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/022.png) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongzhitianxia_youyizhangqing_tongbanzhibanlianhedatuanjianshunlijuban/023.jpeg)
 

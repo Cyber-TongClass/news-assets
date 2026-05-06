@@ -19,7 +19,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/002.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/002.png) -->
 
   
 
@@ -47,13 +47,13 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/003.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/003.png) -->
 
  **活动****介绍**
 
   AI TECH DAY
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/004.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/004.png) -->
 
   
 
@@ -75,13 +75,13 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/005.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/005.png) -->
 
  **报名要求**
 
   AI TECH DAY
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/006.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/006.png) -->
 
 **报名要求**
 
@@ -110,19 +110,19 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
 (海报规格要求: JPG 格式文件，文件建议≥10M，图片分辨率≥300dpi，横版152cm\*85cm，比例 16:9)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/008.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/008.png) -->
 
 扫描上方二维码提交你的作品↑↑↑
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/009.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/009.png) -->
 
 **优秀作品评选**
 
   **AI TECH DAY**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/010.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/010.png) -->
 
   
 
@@ -176,9 +176,9 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
 _**心动就赶快行动！**_
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/011.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/011.png) -->
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/012.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/012.png) -->
 
 **AI**
 
@@ -232,11 +232,11 @@ _010-62766178_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/013.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/013.png) -->
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/014.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/014.png) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/015.gif)
 

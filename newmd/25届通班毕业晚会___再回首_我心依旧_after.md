@@ -9,7 +9,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/002.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/002.png) -->
 
   
 
@@ -51,7 +51,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/004.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/004.png) -->
 
   
 
@@ -69,7 +69,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/007.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/007.png) -->
 
 **殷殷嘱托：教师寄语**
 
@@ -98,7 +98,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/011.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/011.png) -->
 
 **千千阙歌：毕业生发言**
 
@@ -148,7 +148,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/023.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/023.png) -->
 
 **声声笑语：一起摇摆！**
 
@@ -160,9 +160,9 @@
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/025.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/026.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/026.png) -->
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/027.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/027.png) -->
 
   
 
@@ -174,7 +174,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/030.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/030.png) -->
 
   
 
@@ -202,7 +202,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/032.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/25jietongbanbiyewanhui_zaihuishou_woxinyijiu/032.png) -->
 
   
 

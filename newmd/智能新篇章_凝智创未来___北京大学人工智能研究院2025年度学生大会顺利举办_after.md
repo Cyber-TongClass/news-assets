@@ -5,13 +5,13 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/tnPBBIyjpbj0UifFwC499A](https://mp.weixin.qq.com/s/tnPBBIyjpbj0UifFwC499A)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/001.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/001.png) -->
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/002.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/002.png) -->
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/003.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/003.png) -->
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/004.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/004.png) -->
 
 **智能新篇章**
 
@@ -21,9 +21,9 @@
 
 学生大会暨第三届科技节
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/005.gif)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/005.gif) -->
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/006.gif)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/006.gif) -->
 
 2025年10月15日，秋日的凉风和金叶点缀着燕园，由人工智能研究院主办的2025年度学生大会于北京大学百周年纪念讲堂李莹厅如期开展。
 
@@ -101,13 +101,13 @@
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/011.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/012.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/012.png) -->
 
   
 
 **学生代表发言**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/013.gif)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/013.gif) -->
 
   
 
@@ -137,7 +137,7 @@
 
 **颁奖仪式**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/017.gif)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/017.gif) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/zhinengxinpianzhang_ningzhichuangweilai_beijingdaxuerengongzhinengyanjiuyuan2025nianduxueshengdahuishunlijuban/018.jpeg)
 

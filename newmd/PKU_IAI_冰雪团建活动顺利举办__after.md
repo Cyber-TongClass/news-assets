@@ -5,7 +5,7 @@ PKU-IAI 冰雪团建活动顺利举办！
 
 > 原文地址: [https://mp.weixin.qq.com/s/LoNsv1qnWp-Z-3wDOuZYVw](https://mp.weixin.qq.com/s/LoNsv1qnWp-Z-3wDOuZYVw)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/001.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/001.svg) -->
 
   
 
@@ -15,7 +15,7 @@ PKU-IAI 冰雪团建活动顺利举办！
 
 号外号外：PKU通班官方视频号建立啦！欢迎关注！
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/002.gif)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/002.gif) -->
 
   
 
@@ -45,7 +45,7 @@ PKU-IAI 冰雪团建活动顺利举办！
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/011.gif)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/011.gif) -->
 
   
 
@@ -97,7 +97,7 @@ PKU-IAI 冰雪团建活动顺利举办！
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/023.gif)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/023.gif) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/024.jpeg)
 
@@ -149,7 +149,7 @@ _大合照_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/036.gif)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/036.gif) -->
 
   
 
@@ -199,7 +199,7 @@ _大合照_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/037.gif)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_bingxuetuanjianhuodongshunlijuban/037.gif) -->
 
   
 

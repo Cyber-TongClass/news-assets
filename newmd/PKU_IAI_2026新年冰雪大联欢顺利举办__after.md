@@ -5,7 +5,7 @@ PKU-IAI 2026新年冰雪大联欢顺利举办！
 
 > 原文地址: [https://mp.weixin.qq.com/s/i4pjLb7khTfS5le7rz2f2g](https://mp.weixin.qq.com/s/i4pjLb7khTfS5le7rz2f2g)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/001.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/001.png) -->
 
 冬雪皑皑，银装素裹。2026年1月11日，通班师生与AI院部分教师及博士生集体前往北京郊外进行冰雪团建活动，师生们体验了不同的雪上项目，学习锻炼了多元的运动技能，在冰天雪地中磨练意志品质、健全体魄，也在合作中增进了彼此的情谊。
 
@@ -15,11 +15,11 @@ PKU-IAI 2026新年冰雪大联欢顺利举办！
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/003.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/004.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/004.png) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/005.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/006.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/006.png) -->
 
   
 
@@ -39,7 +39,7 @@ PKU-IAI 2026新年冰雪大联欢顺利举办！
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/010.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/011.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/011.png) -->
 
   
 
@@ -95,7 +95,7 @@ PKU-IAI 2026新年冰雪大联欢顺利举办！
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/018.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/019.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/019.png) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/020.png)
 
@@ -113,13 +113,13 @@ PKU-IAI 2026新年冰雪大联欢顺利举办！
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/022.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/023.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/023.png) -->
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/024.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/024.png) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/025.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/026.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/026.png) -->
 
   
 
@@ -133,13 +133,13 @@ PKU-IAI 2026新年冰雪大联欢顺利举办！
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/027.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/028.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/028.png) -->
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/029.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/029.png) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/030.jpeg)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/031.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/031.png) -->
 
   
 
@@ -151,13 +151,13 @@ PKU-IAI 2026新年冰雪大联欢顺利举办！
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/032.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/032.png) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/033.png)
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/034.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/035.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/035.png) -->
 
   
 
@@ -171,9 +171,9 @@ PKU-IAI 2026新年冰雪大联欢顺利举办！
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/036.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/037.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/037.png) -->
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/038.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/038.png) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/039.png)
 
@@ -187,11 +187,11 @@ PKU-IAI 2026新年冰雪大联欢顺利举办！
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/040.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/040.png) -->
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/041.gif)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/041.gif) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/042.png)
 
@@ -219,7 +219,7 @@ PKU-IAI 2026新年冰雪大联欢顺利举办！
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/048.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/049.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/049.png) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/050.png)
 
@@ -261,7 +261,7 @@ PKU-IAI 2026新年冰雪大联欢顺利举办！
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/055.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/056.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/056.png) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/057.png)
 
@@ -279,7 +279,7 @@ PKU-IAI 2026新年冰雪大联欢顺利举办！
 
 2026 新年快乐！
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/059.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/059.png) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/060.jpeg)
 
@@ -291,7 +291,7 @@ PKU-IAI 2026新年冰雪大联欢顺利举办！
 
 排版 | 陈嘉骏 李其禛
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/061.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/061.png) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/062.png)
 

@@ -5,7 +5,7 @@
 
 > 原文地址: [https://mp.weixin.qq.com/s/rTQvx5-CKXE5-nUykNBL8g](https://mp.weixin.qq.com/s/rTQvx5-CKXE5-nUykNBL8g)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/001.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/001.png) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/002.png)
 
@@ -23,7 +23,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/005.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/005.png) -->
 
 本期概要
 
@@ -37,33 +37,33 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/006.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/006.png) -->
 
 通班自治委员会是班级的核心统筹与执行机构，负责贯彻落实校、院政策与决议，协调和规划重要班级事务，收集并反馈同学意见，领导并监督各职能部门的工作，保障班级运行的高效与有序。
 
 **核心工作**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/007.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/007.svg) -->
 
 与校、院级领导和老师沟通协调，承接并推动班级相关决议和工作的落实；
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/008.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/008.svg) -->
 
 统筹规划重要班级事务，组织班级阶段重点工作的推进；
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/009.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/009.svg) -->
 
 领导并监督各职能部门，明确任务分工，跟进工作进展；
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/010.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/010.svg) -->
 
 收集班级内部对教学安排、事务管理等方面的意见建议，及时向有关方反馈；
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/011.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/011.svg) -->
 
 发扬民主精神，定期组织完善班级组织架构和章程；
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/012.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/012.svg) -->
 
 代表通班学生对外发声，在院系、学校及其他场合中传递班级立场，展现通班形象。
 
@@ -79,41 +79,41 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/014.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/014.png) -->
 
 通班组织部是负责班级对内组织、筹办活动的部门，是维系通班组织架构和班级凝聚力、向心力的中坚力量。
 
 **核心工作**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/015.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/015.svg) -->
 
 **统筹组织**各种丰富多彩的**班级团建活动**，并负责**申请和管理学生活动经费**。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/016.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/016.svg) -->
 
 定期讨论、更新和**完善班级组织架构和章程**，充分发挥学生自治体系职能，保障班级组织的活力和效率。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/017.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/017.svg) -->
 
 参与**组织AI院的各项大型活动**，如科技节、通班大会、AI院师生团建活动等。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/018.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/018.svg) -->
 
 **联络****兄弟友好班级**（北大智班、清华通班、元培学院其他专业方向等），共同组织活动。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/019.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/019.svg) -->
 
 统筹**组织新年晚会**（及其他晚会活动）节目的设计、排练与演出。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/020.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/020.svg) -->
 
 组织发放节日小福利、设计选择奖品等。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/021.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/021.svg) -->
 
 整一些同学们喜闻乐见的绝妙好活。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/022.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/022.svg) -->
 
 其他有关班级组织建设的工作。
 
@@ -181,33 +181,33 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/046.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/046.png) -->
 
 通班宣传部是班级对外展示的窗口与文化输出的桥梁，主要负责运营班级官方微信公众号、视频号等新媒体平台，设计并制作与招生宣传、班级形象展示等相关的各类宣传内容。
 
 **核心工作**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/047.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/047.svg) -->
 
 运营**班级官方公众号“PKU通班”**和**同名视频号**，撰文、排版、制作推送。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/048.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/048.svg) -->
 
 **设计班级吉祥物形象**“通小喵”，并制作表情包等衍生产品。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/049.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/049.svg) -->
 
 **设计制作班级文创**，现已陆续推出：帆布袋、卡套、徽章、书签、文件夹、玩偶、文化衫、帽子、马克杯、鼠标垫、U盘、笔记本、钥匙链、日历、贴纸等。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/050.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/050.svg) -->
 
 导演、拍摄通班宣传片、MV、微电影等。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/051.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/051.svg) -->
 
 制作招生**宣传册**、**《通班生存指南》**等帮助同学们选择通班、更好地在通班学习生活的班级宣传材料。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/052.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/052.svg) -->
 
 其他有关班级宣传和形象建设的工作。
 
@@ -253,41 +253,41 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/064.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/064.png) -->
 
 通班学术部是班级学术氛围建设、助力同学们更好地学习和科研的加油站，更是通班丰富的学术和科研资源的集中体现。
 
 **核心工作**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/065.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/065.svg) -->
 
 组织Tong Zhi Talk系列活动，与智班合作邀请Talker，保障同学们能接触到全球领域研究前沿，寻找感兴趣的科研方向，与全球各地的讲者交流互鉴。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/066.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/066.svg) -->
 
 组织班级内部学术交流活动，涵盖数理基础（Tong Math Discussion）、计算机编程（Tong Computing Discussion）和前沿论文导读（Tong Paper Discussion），助力同学们学习讨论高数线代等数理基础课的知识和习题、计概等计算机专业课的大作业等。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/067.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/067.svg) -->
 
 组织编写、维护《通班生存指南》等帮助同学们更好地在通班学习生活的班级指导材料。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/068.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/068.svg) -->
 
 采访优秀的学长学姐，整理、编写、发布有参考价值的学习科研经验分享。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/069.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/069.svg) -->
 
 整理并发布通班学生的最新学术研究成果。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/070.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/070.svg) -->
 
 维护通班官网及其中的班级官方、个人、学术相关资料。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/071.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/071.svg) -->
 
 收集、整理通班内部课程测评，维护通班内部课程测评平台。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/072.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/072.svg) -->
 
 其他有关班级学术和科研的工作。
 
@@ -331,17 +331,17 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/080.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/080.png) -->
 
 “完全人格，首在体育。”通班体育部是班级体育相关活动的组织部门，为保障同学们的身心健康、完成学校的体育锻炼要求、增强班级凝聚力等起着关键作用。
 
 **核心工作**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/081.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/081.svg) -->
 
 组织班级和AI院的体育赛事，如羽毛球赛、乒乓球赛等。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/082.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/082.svg) -->
 
 参与组织与体育相关的团建与团体活动：
 
@@ -352,11 +352,11 @@
 *   组织参加校运动会及入场式方阵等代表班级的体育活动。
     
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/083.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/083.svg) -->
 
 在其他与体育相关的班级活动中，领导分组。
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/084.svg)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/084.svg) -->
 
 其他有关班级体育建设的工作。
 
@@ -396,7 +396,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/095.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/095.png) -->
 
 通班顾问委员会是由高年级同学组成的班级智囊团，成员多为曾长期参与通班班务工作的原班委、学生骨干或积极为班级建设作出贡献的同学。
 

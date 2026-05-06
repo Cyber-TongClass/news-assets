@@ -19,7 +19,7 @@
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/002.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/002.png) -->
 
   
 
@@ -49,13 +49,13 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/004.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/004.png) -->
 
  **活动****介绍**
 
   AI TECH DAY
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/005.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/005.png) -->
 
   
 
@@ -83,13 +83,13 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/006.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/006.png) -->
 
  **奖品预览**
 
   AI TECH DAY
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/007.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/007.png) -->
 
   
 
@@ -167,7 +167,7 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/013.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/013.png) -->
 
   
 
@@ -199,9 +199,9 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/017.png)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/018.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/018.png) -->
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/019.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/019.png) -->
 
   
 
@@ -209,17 +209,17 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
 _**更多文创现场见！心动就赶快行动！**_
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/020.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/020.png) -->
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/021.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/021.png) -->
 
  **报名链接**
 
   AI TECH DAY
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/022.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/022.png) -->
 
 **信息提交**
 
@@ -244,19 +244,19 @@ _**更多文创现场见！心动就赶快行动！**_
 
 (海报规格要求: JPG 格式文件，文件建议≥10M，图片分辨率≥200dpi，比例 16:9)
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/024.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/024.png) -->
 
 扫描上方二维码提交你的作品↑↑↑
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/025.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/025.png) -->
 
 **转发集赞得文创**
 
   **AI TECH DAY**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/026.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/026.png) -->
 
   
 
@@ -296,7 +296,7 @@ _（更多类别正在制作中……）_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/036.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/036.png) -->
 
 **AI**
 
@@ -334,11 +334,11 @@ _010-62766178_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/037.gif)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/037.gif) -->
 
 **感谢****赞助和支持🎉**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/038.gif)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/038.gif) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/039.png)
 
@@ -358,11 +358,11 @@ _010-62766178_
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/040.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/040.png) -->
 
   
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/041.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/041.png) -->
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/042.gif)
 

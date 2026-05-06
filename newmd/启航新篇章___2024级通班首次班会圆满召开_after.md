@@ -29,7 +29,7 @@
 
 **师长寄语，洞见人工智能未来**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/003.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/003.png) -->
 
   
 
@@ -67,7 +67,7 @@
 
 **回顾展望，携手共绘通班蓝图**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/007.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/007.png) -->
 
   
 
@@ -89,7 +89,7 @@
 
 **相聚此刻，共筑同学情谊新篇**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/010.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/010.png) -->
 
   
 
@@ -105,7 +105,7 @@
 
 **结语：梦想启航，未来可期**
 
-![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/012.png)
+<!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/qihangxinpianzhang_2024jitongbanshoucibanhuiyuanmanzhaokai/012.png) -->
 
   
 
