@@ -161,7 +161,7 @@ _**TOP 1**_
 
 _**TOP 2**_
 
-**亚军组****MANC****队合影**
+**亚军组** **MANC** **队合影**
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/020.png)
 
@@ -175,7 +175,7 @@ _**TOP 2**_
 
 _**TOP 3**_
 
-**季军组****有思路****队合影**
+**季军组** **有思路** **队合影**
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandierjie_AI_bei_yumaoqiusaiyuanmanluomu/023.png)
 

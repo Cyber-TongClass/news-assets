@@ -9,13 +9,7 @@
 
   
 
-**AI**
-
-**科**
-
-**技**
-
-**节**
+**AI科技节**
 
   
 
@@ -51,7 +45,7 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
 <!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/004.png) -->
 
- **活动****介绍**
+ **活动** **介绍**
 
   AI TECH DAY
 
@@ -95,7 +89,7 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
 **1**
 
-**AI TECH DAY****·** 
+**AI TECH DAY** **·** 
 
 **Best Paper / Best Demo**
 
@@ -111,7 +105,7 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
 **2**
 
-**AI TECH DAY****·** 
+**AI TECH DAY** **·** 
 
 **专家评审优秀作品**
 
@@ -155,7 +149,7 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
   
 
-**宝丽来（Polaroid）****Flip**
+**宝丽来（Polaroid）** **Flip**
 
   
 
@@ -298,19 +292,11 @@ _（更多类别正在制作中……）_
 
 <!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/036.png) -->
 
-**AI**
-
-**科**
-
-**技**
-
-**节**
+**AI科技节**
 
   
 
-**AI**
-
-TECH DAY
+AITECH DAY
 
 互动、分享、展示、交流，期待在热烈的学术氛围中为您带来更多惊喜！请不要犹豫，积极参与！我们期待在科技节上见证你的精彩展示和分享！
 
@@ -336,7 +322,7 @@ _010-62766178_
 
 <!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/037.gif) -->
 
-**感谢****赞助和支持🎉**
+**感谢** **赞助和支持🎉**
 
 <!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_AI_Tech_Day_2025jiangpinjutou/038.gif) -->
 
@@ -348,13 +334,7 @@ _010-62766178_
 
 **～逾期不候～**
 
-**期**
-
-**待**
-
-**您**
-
-**来**
+**期待您来**
 
   
 

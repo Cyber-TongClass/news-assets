@@ -25,9 +25,9 @@ Tong Zhi Talk | Language Models Resist Alignment
 
   
 
-**时间：**11月22日上午10点30分  
+**时间：** 11月22日上午10点30分  
 
-**地点：**35楼b107A
+**地点：** 35楼b107A
 
   
 

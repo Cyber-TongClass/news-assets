@@ -9,13 +9,7 @@
 
   
 
-**AI**
-
-**科**
-
-**技**
-
-**节**
+**AI科技节**
 
   
 
@@ -49,7 +43,7 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
 <!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/003.png) -->
 
- **活动****介绍**
+ **活动** **介绍**
 
   AI TECH DAY
 
@@ -85,11 +79,11 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
 **报名要求**
 
-**Poster Track：**所提交的科研成果须为2024年10月及以后发表或已被接收，且未参加过 2024年科技节展出的科研工作。
+**Poster Track：** 所提交的科研成果须为2024年10月及以后发表或已被接收，且未参加过 2024年科技节展出的科研工作。
 
   
 
-**Demo Track：**本环节旨在展示具有创新性的项目原型与系统，不对项目的发表状态做限制。
+**Demo Track：** 本环节旨在展示具有创新性的项目原型与系统，不对项目的发表状态做限制。
 
   
 
@@ -146,7 +140,7 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
 **1**
 
-**AI TECH DAY****·** 
+**AI TECH DAY** **·** 
 
 **重磅大奖，激发创新力量**
 
@@ -154,7 +148,7 @@ Join us for an inspiring exploration of crossdisciplinary research at our
 
 **2**
 
-**AI TECH DAY****·** 
+**AI TECH DAY** **·** 
 
 **独家限量版文创，与众不同**
 
@@ -180,13 +174,7 @@ _**心动就赶快行动！**_
 
 <!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/kejijie_2025_AI_Tech_Day_kuailaibaomingcanjia/012.png) -->
 
-**AI**
-
-**科**
-
-**技**
-
-**节**
+**AI科技节**
 
   
 
@@ -222,13 +210,7 @@ _010-62766178_
 
 **～逾期不候～**
 
-**期**
-
-**待**
-
-**您**
-
-**来**
+**期待您来**
 
   
 

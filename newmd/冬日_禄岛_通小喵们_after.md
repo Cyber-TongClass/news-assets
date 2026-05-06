@@ -15,13 +15,7 @@
 
   
 
-**冬**
-
-**日**
-
-**小**
-
-**猫**
+**冬日小猫**
 
 <!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/dongri_ludao_tongxiaomiaomen/002.png) -->
 

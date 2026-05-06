@@ -205,7 +205,7 @@
 
 <!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/051.svg) -->
 
-制作招生**宣传册**、**《通班生存指南》**等帮助同学们选择通班、更好地在通班学习生活的班级宣传材料。
+制作招生**宣传册**、 **《通班生存指南》** 等帮助同学们选择通班、更好地在通班学习生活的班级宣传材料。
 
 <!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/tongbanshengcunzhinan_xueshengzuzhijieshao/052.svg) -->
 

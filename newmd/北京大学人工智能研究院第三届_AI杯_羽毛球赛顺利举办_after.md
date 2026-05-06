@@ -209,7 +209,7 @@ _**TOP 1**_
 
 _**TOP 2**_
 
-**亚军组：****大聪明队**
+**亚军组：** **大聪明队**
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/023.jpeg)
 
@@ -223,7 +223,7 @@ _**TOP 2**_
 
 _**TOP 3**_
 
-**季军组：****羽你通行****队**
+**季军组：** **羽你通行** **队**
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/beijingdaxuerengongzhinengyanjiuyuandisanjie_AIbei_yumaoqiusaishunlijuban/026.jpeg)
 

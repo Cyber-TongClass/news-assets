@@ -233,21 +233,15 @@ PKU-IAI 2026新年冰雪大联欢顺利举办！
 
   
 
-抽
+**抽奖环节**
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/051.png)
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/052.png)
 
-环
-
-奖
-
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/053.png)
 
 ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/PKU_IAI_2026xinnianbingxuedalianhuanshunlijuban/054.png)
-
-节
 
   
 

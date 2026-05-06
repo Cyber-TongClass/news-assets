@@ -13,13 +13,7 @@
 
   
 
-**AI**
-
-**科**
-
-**技**
-
-**节**
+**AI科技节**
 
   
 
@@ -55,7 +49,7 @@ Join us for an inspiring exploration of cross-disciplinary research at our
 
 <!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/jiuzaijintian_2025_AI_Tech_Day_huanyingninlai/004.png) -->
 
- **活动****介绍**
+ **活动** **介绍**
 
  AI TECH DAY
 
@@ -71,7 +65,7 @@ Join us for an inspiring exploration of cross-disciplinary research at our
 
   
 
-**本届科技节将有91项通用人工智能及人工智能交叉方向的学生科研展板，及 10 项 Demo 展演。**展出内容覆盖认知推理、机器学习、自然语言处理、计算机视觉等核心领域，也延伸至AI+医学、AI+人文、AI+芯片、AI+地球空间等多个交叉前沿。
+**本届科技节将有91项通用人工智能及人工智能交叉方向的学生科研展板，及 10 项 Demo 展演。** 展出内容覆盖认知推理、机器学习、自然语言处理、计算机视觉等核心领域，也延伸至AI+医学、AI+人文、AI+芯片、AI+地球空间等多个交叉前沿。
 
   
 
@@ -95,7 +89,7 @@ Join us for an inspiring exploration of cross-disciplinary research at our
 
 <!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/jiuzaijintian_2025_AI_Tech_Day_huanyingninlai/008.png) -->
 
- **活动****安排**
+ **活动** **安排**
 
  AI TECH DAY
 
@@ -129,19 +123,19 @@ AI TECH DAY
 
 **1**
 
-**AI TECH DAY****·** **最受欢迎奖**
+**AI TECH DAY** **·** **最受欢迎奖**
 
 这个奖项将颁发给现场人气最高的五项作品。您可以为您最喜欢的作品投上宝贵的一票。
 
 **2**
 
-**AI TECH DAY****·** **最佳创意奖**
+**AI TECH DAY** **·** **最佳创意奖**
 
 这个奖项将颁发给在创意表达方面表现最出色的五项作品。你可以为在演讲、设计、构思等方面展示出独特才能的做作品，投上你认为“最具创意”的一票。
 
 **3**
 
-**AI TECH DAY****·****不明觉厉奖**
+**AI TECH DAY** **·** **不明觉厉奖**
 
 这个奖项将颁发给在活动中表现优异或独具风格的五项作品。无论是因为技术创新的卓越、研究方法的独特，还是成果展示的震撼，只要作品能够给人留下深刻印象，你就可以为它投出宝贵的一票。
 
@@ -163,25 +157,25 @@ AI TECH DAY
 
 **1**
 
-**AI TECH DAY****·** 
+**AI TECH DAY** **·** 
 
 **围观参与投票，赢取文创！**
 
   
 
-在活动现场，别忘了为你心仪的作品投上一票！每一票都是对创作者的支持与鼓励，更是您获得精美文创的机会。参与交流集章即可获得限量**“创意支持者套装”**文创奖品！快来用你的行动支持创作者们吧！
+在活动现场，别忘了为你心仪的作品投上一票！每一票都是对创作者的支持与鼓励，更是您获得精美文创的机会。参与交流集章即可获得限量 **“创意支持者套装”** 文创奖品！快来用你的行动支持创作者们吧！
 
   
 
 **2**
 
-**AI TECH DAY****·** 
+**AI TECH DAY** **·** 
 
 **集赞赢好礼，轻松领取！**
 
   
 
-想要获得文创奖品？那就快来参与集赞活动！只需转发活动信息到朋友圈，并集满30个赞，截图并发送至公众号后台。简单三步，便可到活动现场领取限量**“点赞达人套装”**文创礼品！赶紧去集赞吧！
+想要获得文创奖品？那就快来参与集赞活动！只需转发活动信息到朋友圈，并集满30个赞，截图并发送至公众号后台。简单三步，便可到活动现场领取限量 **“点赞达人套装”** 文创礼品！赶紧去集赞吧！
 
   
 
@@ -191,7 +185,7 @@ AI TECH DAY
 
 **三轮抽奖，惊喜不断！**
 
-在 13:30 - 15:30 期间到达现场并签到后，你将获得一张抽奖券，参与下午的抽奖！每一轮的奖品都不容错过，而最棒的是——**你可以在每一轮都中奖！**抽奖时间为17:10，抓住机会，幸运大奖等你来拿！
+在 13:30 - 15:30 期间到达现场并签到后，你将获得一张抽奖券，参与下午的抽奖！每一轮的奖品都不容错过，而最棒的是—— **你可以在每一轮都中奖！** 抽奖时间为17:10，抓住机会，幸运大奖等你来拿！
 
   
 
@@ -221,25 +215,17 @@ _**更多文创现场见！心动就赶快行动！**_
 
 <!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/jiuzaijintian_2025_AI_Tech_Day_huanyingninlai/019.png) -->
 
-**AI**
-
-**科**
-
-**技**
-
-**节**
+**AI科技节**
 
   
 
-**AI**
-
-TECH DAY
+AI TECH DAY
 
   
 
 <!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/jiuzaijintian_2025_AI_Tech_Day_huanyingninlai/020.gif) -->
 
-**感谢****赞助和支持🎉**
+**感谢** **赞助和支持🎉**
 
 <!-- ![](https://cdn.jsdelivr.net/gh/gky0329/tong-image-repo@main/jiuzaijintian_2025_AI_Tech_Day_huanyingninlai/021.gif) -->
 
@@ -251,13 +237,7 @@ TECH DAY
 
 **～逾期不候～**
 
-**期**
-
-**待**
-
-**您**
-
-**来**
+**期待您来**
 
   
 
